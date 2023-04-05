@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **wajulhuda50@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dxWpthoYVNEBqfMMV2HVTAjYsP7tFJ-9/view?usp=share_link](https://drive.google.com/file/d/1dxWpthoYVNEBqfMMV2HVTAjYsP7tFJ-9/view?usp=share_link)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1dxWpthoYVNEBqfMMV2HVTAjYsP7tFJ-9/view?usp=share_link)
 
 - ⚡ Fun fact **I am self-Motivated.**
 
